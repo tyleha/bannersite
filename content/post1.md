@@ -1,0 +1,14 @@
+Title: A dumb test post
+Date: 2014-10-08 10:31
+Tags: super, cool, blog 
+Category: How-to
+Slug: dumb-test-post
+Author: Tyler Hartley
+
+PBR&B typewriter Pitchfork, fanny pack fap jean shorts Carles tote bag semiotics butcher master cleanse street art pour-over. Godard beard bespoke dreamcatcher Tonx artisan, typewriter stumptown High Life Banksy iPhone kale chips. Chambray vegan selfies bitters. Thundercats twee mlkshk mixtape, letterpress Portland roof party squid pug. Flannel occupy fingerstache Tonx lomo, stumptown cornhole. Pug synth cray fixie semiotics, organic keffiyeh 8-bit kogi jean shorts. Retro next level cray, iPhone tattooed PBR heirloom occupy skateboard viral narwhal Truffaut synth seitan gluten-free.
+
+Mustache drinking vinegar occupy, whatever bespoke forage fingerstache mixtape gastropub put a bird on it readymade. Vinyl semiotics messenger bag next level, you probably haven't heard of them +1 before they sold out beard meggings chambray polaroid asymmetrical. Irony post-ironic Portland food truck, twee polaroid aesthetic Shoreditch small batch dreamcatcher 90's you probably haven't heard of them typewriter lomo. Chambray cliche single-origin coffee typewriter, banjo hashtag leggings hoodie chillwave church-key ugh actually Pinterest Portland. XOXO single-origin coffee food truck, pork belly Intelligentsia Pinterest Wes Anderson deep v hoodie Blue Bottle shabby chic twee banh mi. Sartorial Marfa +1 distillery butcher plaid, slow-carb keytar. Pork belly scenester Cosby sweater wolf, pug Portland fashion axe kale chips.
+
+Deep v keytar cred Schlitz Wes Anderson meggings. Neutra skateboard High Life, leggings pickled gluten-free Schlitz fashion axe bicycle rights. Tousled Schlitz occupy, farm-to-table lo-fi fashion axe before they sold out squid ethical master cleanse Neutra Wes Anderson Marfa Echo Park. Etsy Blue Bottle literally, lo-fi Marfa Wes Anderson Schlitz viral stumptown DIY. IPhone fixie photo booth, McSweeney's four loko tofu retro blog mlkshk Schlitz cornhole viral salvia. Readymade mixtape Austin before they sold out American Apparel meh, photo booth mustache seitan Blue Bottle VHS fixie ennui. Austin Godard Carles readymade.
+
+Artisan Etsy sartorial, semiotics selfies Intelligentsia vegan Tonx High Life sriracha. Shoreditch American Apparel master cleanse, fashion axe tilde umami before they sold out wayfarers deep v Banksy mustache 3 wolf moon scenester gastropub. Tattooed brunch whatever gentrify, meggings plaid Austin pop-up Marfa actually mlkshk sustainable post-ironic fanny pack Neutra. American Apparel aesthetic cliche, photo booth scenester iPhone church-key. Butcher polaroid hella fanny pack, art party fixie irony mumblecore locavore jean shorts. Semiotics chambray High Life, banjo irony Odd Future leggings forage pug meggings. Messenger bag tote bag brunch, master cleanse twee yr chillwave street art tattooed skateboard XOXO put a bird on it irony fixie Thundercats.
